@@ -2,6 +2,8 @@
 
 Lista de referências utilizadas e citadas no trabalho.
 
+Armac, **Amarc**. Disponível em: <https://lp.armac.com.br>. Acesso em: 25 fev. 2025.
+
 APELMAT, 2024. **Rental pode atingir 30% do mercado de equipamentos até final do ano**. Disponível em: <https://www.apelmat.org.br/rental-pode-atingir-30-do-mercado-de-equipamentos>. Acesso em: 22 fev. 2025.
 
 Grupo Rossi Maquinas. **GRUPO ROSSI**. Disponível em: <https://www.gruporossimaquinas.com.br/>. Acesso em: 23 fev. 2025.
