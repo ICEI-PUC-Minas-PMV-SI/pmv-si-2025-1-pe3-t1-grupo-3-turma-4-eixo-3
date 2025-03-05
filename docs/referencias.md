@@ -13,3 +13,5 @@ Portal da Indústia, 2025. **Industrialização da construção pode potencializ
 Revista M&T, 2024. **Locação de equipamentos pesados acompanha bom momento da construção civil no Brasil**. Disponível em: <https://revistamt.com.br/Noticias/Exibir/locacao-de-equipamentos-pesados-acompanha-bom-momento-da-construcao-civil-no-brasil>. Acesso em: 22 fev. 2025.
 
 Soluguel. **SOLUGUEL**. Disponível em: <https://www.soluguel.com.br>. Acesso em: 22 fev. 2025.
+
+Casa do construtor. **CASA DO CONSTRUTOR**. Disponível em: <https://casadoconstrutor.com.br/pt-br/>. Acesso em: 26 fev. 2025.
