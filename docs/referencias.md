@@ -8,6 +8,8 @@ APELMAT, 2024. **Rental pode atingir 30% do mercado de equipamentos até final d
 
 Grupo Rossi Maquinas. **GRUPO ROSSI**. Disponível em: <https://www.gruporossimaquinas.com.br/>. Acesso em: 23 fev. 2025.
 
+Minax Construções e Mineração, 2024. **Minax**. Disponível em: <https://minax.app.com.br>. Acesso em: 25 fev. 2025. 
+
 Portal da Indústia, 2025. **Industrialização da construção pode potencializar o uso de técnicas de manufatura enxuta e tecnologias digitais**. Disponível em: <https://www.portaldaindustria.com.br/estatisticas/sondesp-94-manufatura-enxuta-na-industria-da-construcao>. Acesso em: 22 fev. 2025.
 
 Revista M&T, 2024. **Locação de equipamentos pesados acompanha bom momento da construção civil no Brasil**. Disponível em: <https://revistamt.com.br/Noticias/Exibir/locacao-de-equipamentos-pesados-acompanha-bom-momento-da-construcao-civil-no-brasil>. Acesso em: 22 fev. 2025.
