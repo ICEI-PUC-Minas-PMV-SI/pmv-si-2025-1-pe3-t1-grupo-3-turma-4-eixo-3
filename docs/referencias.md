@@ -4,7 +4,7 @@ Lista de referências utilizadas e citadas no trabalho.
 
 APELMAT, 2024. **Rental pode atingir 30% do mercado de equipamentos até final do ano**. Disponível em: <https://www.apelmat.org.br/rental-pode-atingir-30-do-mercado-de-equipamentos>. Acesso em: 22 fev. 2025.
 
-Armac, **Amarc**. Disponível em: <https://lp.armac.com.br>. Acesso em: 25 fev. 2025.
+Armac, **Armac**. Disponível em: <https://lp.armac.com.br>. Acesso em: 25 fev. 2025.
 
 Casa do construtor. **CASA DO CONSTRUTOR**. Disponível em: <https://casadoconstrutor.com.br/pt-br/>. Acesso em: 26 fev. 2025.
 
